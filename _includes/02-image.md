@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+! [Welcome HOME @TYRANT_14] (https://pin.it/12cr1zT) 
